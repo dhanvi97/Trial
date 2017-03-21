@@ -1,4 +1,4 @@
 # Trial
 Learning 
-Yahaha 
+Yamaha
 Batter Outto
